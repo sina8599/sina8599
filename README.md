@@ -7,13 +7,13 @@
 
 - 💥 I’m currently working on [Advanced mobile phone repair](https://github.com/sina8599)
 
-- 🌙I’m currently learning **hardware mobile reapir**
+- 🌙I’m currently learning **hardware mobile reapir and programing**
 
 - You can contact me via Telegram [Sina8599](https://t.me/Sina9II)
 
 - 👨‍💻 All of my projects are available at [https://github.com/sina8599](https://github.com/sina8599)
 
-- 💬 Ask me about **mobile reapir , edit**
+- 💬 Ask me about **mobile reapir , edit , HTML , Python**
 
 - 📫 How to reach me **sinasinayy85@gmail.com**
 
